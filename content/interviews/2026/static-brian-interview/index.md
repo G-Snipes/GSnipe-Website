@@ -590,7 +590,7 @@ ___
 ___
 *Also Quick shoutout to [Lily Saperstein](https://www.instagram.com/lilysaperstein/). I realize she didn't get mentioned in this interview, but I don't think one can get this deep in a Static Brian interview without shouting out all the concert photography/videography she's done for them! 
 
-So follow Static Brian, stream their new music, and get ready for their new record. 
+So follow Static Brian, stream their new music, and get ready for their new record! 
 
 Oh, and stay emo!
 
